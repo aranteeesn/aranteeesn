@@ -13,5 +13,6 @@
  
  -Muito curiosa.
 
-![](https://tenor.com/bmnTo.gif) 
+![homer-the-simpsons](https://github.com/aranteeesn/aranteeesn/assets/169935963/0021146b-a737-4f62-9604-ff3f302489b4)
+
 
